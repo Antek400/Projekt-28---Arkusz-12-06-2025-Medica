@@ -1,1 +1,0 @@
-# Projekt-28---Arkusz-12-06-2025-Medica
